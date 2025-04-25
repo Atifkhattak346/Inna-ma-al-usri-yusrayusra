@@ -4,7 +4,7 @@ Life is a tapestry woven with threads of joy and sorrow, ease and hardship. When
 
 This verse, short yet profound, provides a beacon of hope in the darkest of times. It reminds us that every difficulty, every struggle, is inevitably followed by ease. This doesn't necessarily mean that the problem will miraculously vanish, but rather that a path to resolution will emerge, strength will be granted, and a sense of peace will return.
 
-**Understanding the Verse-:**[inna ma al usri yusra](https://surahyasin.org/inna-ma-al-usri-yusra/)
+**Understanding the Verse-:**inna ma al usri yusrayusra
 
 * **Arabic:** ﴿إِنَّ مَعَ الْعُسْرِ يُسْرًا﴾
 * **Urdu:** بیشک سختی کے ساتھ آسانی ہے
