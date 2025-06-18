@@ -16,6 +16,8 @@ This verse offers several key insights:
 * **A Test of Faith:** Challenges are not merely obstacles but tests of our faith and resilience. They push us to grow, learn, and develop inner strength. 
 * **Divine Support:** The verse implies that God is always with us, guiding and supporting us through difficult times. We are not alone in our struggles.
 
+* You can also watch this blogpost :[surah lahab](https://islamicdoor.com/surah-lahab-r-surah-masad)
+
 **Finding Ease in Hardship:**
 
 * **Perspective Shift:** Reframing our perspective can make a significant difference. Instead of focusing on the problem, try to identify the lessons and opportunities within the challenge.
